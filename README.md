@@ -1,1 +1,1 @@
-### Exercises for 10/05/2025, school in Ascoli
+### Esercizi per Ascoli, 10/05/2025
